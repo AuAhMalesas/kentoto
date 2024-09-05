@@ -1,2 +1,0 @@
-# kentoto
-kentoto
